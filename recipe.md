@@ -1,0 +1,4 @@
+1. Preheat oven to 350°. Butter baking pan and line with parchment paper. In a medium bowl, whisk together flour, salt, and cocoa powder. 
+2. Set a large heat-proof bowl over a saucepan of simmering water to create a double-boiler. Add butter and 1 + 1/2 cups chocolate chips to bowl. Heat, stirring occasionally until the chocolate and butter are completely melted and smooth. Remove bowl from heat, then whisk in sugars and stir until combined. 
+3. Add eggs one at a time, stirring well between each addition, then stir in vanilla. Add flour mixture to chocolate mixture and fold in dry ingredients with a rubber spatula until just combined. Fold in remaining 1/2 cup chocolate chips. 
+4. Pour batter into prepared pan. Bake until a toothpick inserted into center of brownies comes out with not more than a few moist crumbs, about 30 minutes. Let cool completely in pan. 
