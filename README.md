@@ -1,0 +1,1 @@
+This fudgy and delicious brownie recipe comes together in one bowl in just a few minutes! You'll love the flavor and texture so be forewarned, it's best to invite some friends over when you make a batch because portion control is quite difficult around them.
